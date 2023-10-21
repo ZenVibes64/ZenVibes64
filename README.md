@@ -29,15 +29,15 @@ Notre mission est de vous aider à créer un espace de bien-être chez vous, où
 Contactez-Nous
 Si vous avez des questions, des commentaires ou si vous avez besoin d'assistance, n'hésitez pas à nous contacter. Notre équipe dévouée est là pour vous aider.
 
-Email : contact@zenvibes.com
-Téléphone : +33 (0)1 23 45 67 89
+Email : zenvibes64@gmail.com
+Téléphone : +33782210192
 Adresse : 123 Rue du Bien-Être, 75000 Paris, France
 Suivez-nous
 Rejoignez la communauté ZenVibes sur les réseaux sociaux pour des conseils, des astuces et des offres spéciales exclusives :
 
-Facebook
-Instagram
-Pinterest
+Facebook ZenVibes
+Instagram ZenVibes
+Pinterest ZenVibes
 Merci d'avoir choisi ZenVibes pour votre bien-être. Nous sommes impatients de vous accompagner dans votre quête de l'harmonie et du bien-être.
 
 Namasté 🙏
